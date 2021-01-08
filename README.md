@@ -777,7 +777,7 @@
 - WX: xianzi0081  
 - WX: wx4192020
 - WX: Tmdb7788    老菜皮
-- Tel: 18861370995  Email: 1603036851@qq.com  Name: 查静文  Wx: ZjW121233355  Job: 前台  Hometown: 连云港灌云
+- Tel: 18861370995  Email: 1603036851@qq.com  Name: 查静文  Wx: ZjW121233355  Job: 前台  Hometown: 连云港灌云  微博：https://www.weibo.com/u/5744731194
 - WX: lan13761567719 坦克    老菜皮
 - WX: lixiaohuaainiyo  476787170
 - WX: s251736033
