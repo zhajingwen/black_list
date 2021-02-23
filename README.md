@@ -1,7 +1,7 @@
 # black_list
 
 部分已经掌握的骗子名单：
-
+- TEL 15271179342 Wechat beBeautifuleveryDay name 徐韫哲 address 武汉 tips:杀猪盘
 - QQ 2302341090
 - QQ 2604970806
 - QQ 896809168
