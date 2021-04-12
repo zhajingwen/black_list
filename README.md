@@ -1,6 +1,8 @@
 # black_list
 
 部分已经掌握的骗子名单：
+
+- QQ 2820278646
 - wechat  G-20000623  tips:鸡头
 - WECHAT  wxid_lgigr9fzj20k21  name 杨林
 - TEL 15271179342 Wechat beBeautifuleveryDay name 徐韫哲 address 武汉 tips:杀猪盘
