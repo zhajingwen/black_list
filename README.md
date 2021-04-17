@@ -1,7 +1,7 @@
 # black_list
 
 部分已经掌握的骗子名单：
-
+- QQ 2937383771 wechat yueyue98165
 - QQ 2820278646
 - wechat  G-20000623  tips:鸡头
 - WECHAT  wxid_lgigr9fzj20k21  name 杨林
