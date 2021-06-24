@@ -1,6 +1,7 @@
 # black_list
 
 部分已经掌握的骗子名单：
+- wx jfu688558 TEL 15374096037
 - QQ 2937383771 1901871180 wechat yueyue98165  yueyue33165  yueyue22165
 - QQ 2820278646
 - wechat  G-20000623  tips:鸡头
