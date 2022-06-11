@@ -1,6 +1,7 @@
 # black_list 骗子黑名单
 
 部分已经掌握的骗子名单：
+- WECHAT aaoogp QQ 2250568464  抖音业务
 - TEL 18294184290  NAME 赵文学  诈骗   地址兰州市
 - wx jfu688558 TEL 15374096037
 - QQ 2937383771 1901871180 wechat yueyue98165  yueyue33165  yueyue22165
