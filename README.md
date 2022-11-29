@@ -3,7 +3,7 @@
 部分已经掌握的骗子名单：
 - QQ 1032771218 TEL 13851352154 hl
 - WECHAT Richzyy- INS https://www.instagram.com/richzyy_/ 酒托
-- WECHAT C-Yiiiiiilinnnnn  微博  https://weibo.com/u/5579978110  TEL 13738833195
+- WECHAT C-Yiiiiiilinnnnn  微博  https://weibo.com/u/5579978110  TEL 13738833195   QQ 1473916879
 - WECHAT aaoogp QQ 2250568464  抖音业务
 - TEL 18294184290  NAME 赵文学  诈骗   地址兰州市
 - wx jfu688558 TEL 15374096037
